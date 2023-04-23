@@ -47,4 +47,3 @@ Et ruinent au bon plaisir des autres.
 Cordialement !
 
 L'équipe et la développeuse de 💚Kristina💚#6098
-💚💚💚💚💚💚
